@@ -22,3 +22,5 @@ I will try to revive this page and make itt more active.
 *Please download atleast one file from all of the 2 accounts. I have others that I am going to feature.*
 
 *other accounts file:* ***https://github.com/KingZarek1/NewRepoGuys/OtherAccounts.md***
+
+`Note: if the file is Not Found or 404 just go to OtherAccounts.md on this repo. Please report any issues.`

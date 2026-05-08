@@ -16,3 +16,7 @@ It's mostly AI.
 I will try to revive this page and make itt more active.
 - KingZarek1
 ```
+
+### *Before you go:*
+
+*Please download atleast one file from all of the 2 accounts. I have others that I am going to feature.*

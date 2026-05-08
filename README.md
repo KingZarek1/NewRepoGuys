@@ -1,11 +1,11 @@
-### ✨ New Repository Guys ✨
+# ✨ New Repository Guys ✨
 I made a new repo on my new account alt one lol. Sorry if this account is inactive.
 
 The ***Link*** is here:
 
 https://github.com/HyperTechInc
 
-# Message to ones that liked like this
+### Message to ones that liked like this
 
 ```
 Hello guys. I am sorry if you are going to be sad. I provided linka to my new account,

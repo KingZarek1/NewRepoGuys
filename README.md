@@ -20,3 +20,5 @@ I will try to revive this page and make itt more active.
 ### *Before you go:*
 
 *Please download atleast one file from all of the 2 accounts. I have others that I am going to feature.*
+
+*other accounts file:* ***https://github.com/KingZarek1/NewRepoGuys/OtherAccounts.md***
